@@ -1,1 +1,1 @@
-# pertemiuan4
+hak milik padil
